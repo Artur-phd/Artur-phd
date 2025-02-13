@@ -13,7 +13,6 @@
 
 - ⚡ Fun fact **At the age of 18, I already bench press a barbell weighing 100 kg. My strength is not only in the muscles of the muscles, but also in the willpower that helps me achieve my goals and become better every day!” 💪🔥**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
